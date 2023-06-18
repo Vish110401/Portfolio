@@ -25,5 +25,5 @@ I welcome any feedback, suggestions, or improvements you may have. Feel free to 
 
 ## Contact
 
-Thank you for visiting my portfolio! If you have any questions or would like to get in touch, you can reach me at [your-email@example.com].
+Thank you for visiting my portfolio! If you have any questions or would like to get in touch, you can reach me at vishal.jn2001@gmail.com.
 
